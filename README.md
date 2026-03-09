@@ -1,5 +1,5 @@
 # 💫 About Me:
-I currently work at Fidelity <br>lam kaggle Master<br>I study ABCD
+ <br>lam kaggle Master<br>I study ICFAI UNIVERSITY TRIPURA
 
 
 ## 🌐 Socials:
